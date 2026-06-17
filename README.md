@@ -1,0 +1,2 @@
+# CA015ICMineracaoDeDados202601
+CA015ICMineracaoDeDados202601
